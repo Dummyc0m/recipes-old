@@ -5,7 +5,7 @@
  - 1 tsp Shaoxing cooking wine
  - 2 tsp light soy sauce
  - 2 tsp corn starch
- - 
+ - salt, the right amount, large pinch
  
 Cut the chicken thighs into 1/2 inch cubes and marinade for 15 minutes.
 
