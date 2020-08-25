@@ -10,4 +10,4 @@ Current selection:
 - Pad thai
 - Reverse-seared steak
 - Sweet taro ball
-- Teriyaki Chicken
+- Teriyaki chicken
